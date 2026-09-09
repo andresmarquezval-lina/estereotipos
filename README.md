@@ -1,0 +1,2 @@
+# estereotipos
+Los estereotipos españoles
